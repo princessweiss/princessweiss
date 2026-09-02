@@ -7,7 +7,7 @@
 </p>
 
 <p align="center" >
-<a href="https://rubyrose.atabook.org/">ata</a> ⠀⠀⠀⠀⠀⠀<a href="https://en.pronouns.page/@myrtenaster">prns page</a>
+<a href="https://rubyrose.atabook.org/">ata</a> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://en.pronouns.page/@myrtenaster">prns page</a>
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
