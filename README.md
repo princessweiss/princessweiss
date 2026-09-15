@@ -14,8 +14,8 @@
   <br>
   <small>
 
-Hi!!!!!!!!!!!!!!!!!im ruby i also go by leon . 
-im 17 and a butch lesbiabn and also a weiss schnee yume but idgaf about doubles :drools
+im ruby i also go by leon (osdd sys) . 
+17 and a butch lesbiabn and also a weiss schnee (& blake belladonna) yume but idgaf about doubles :drools
 
 no dni Except for those weirdass Tauradonna wk and rosegarden shippersget outta my fac
   </small>
