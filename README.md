@@ -29,6 +29,6 @@ no dni Except for those weirdass Tauradonna wk and rosegarden shippersget outta 
 </p>
 
 <p align="center" >
-<sup><sub>art by mtdykxkxzzy on twitter</sub></sup>
+<sup><sub>art by mtdykxkxzzy && wuyi1551 on twitter</sub></sup>
 </p>
 <hr>
